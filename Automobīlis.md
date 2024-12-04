@@ -1,3 +1,1 @@
-#Autimašīnbūves dokuments
-##Negro y azul
-Nigger
+#Viss labi
